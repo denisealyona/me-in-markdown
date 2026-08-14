@@ -1,1 +1,2 @@
 # me-in-markdown
+Hello, my name is **Denise Mallari**!  I am a junior here at Chatsworth Chater High School. I am on the track team and I am also a part of link crew. My favorite movie is Despicable me 3 because i believe it is the best minion movie.
