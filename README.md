@@ -13,5 +13,7 @@ This summer i recently learned how to play flag football. I thought it was prett
 
 # [spotify playlist](https://open.spotify.com/playlist/3MORcmzusolufjM2PjlLiE?si=Zm4v3GLfTDa-9jw0dNN9ZA)
 
-# image collage of the things that i like 
- ![this is the image of my collage](https://canva.link/9a6j2kfr5bm3pln) 
+# Image collage of things that i like!!
+
+
+ 
