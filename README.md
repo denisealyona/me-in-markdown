@@ -30,5 +30,5 @@ My top 3
 
 
 ![these are images of things that i like and my friends](image.png)
- These photos are just images of things that i like, places that ive been too,  and the people i like to hang out with :) 
+ These photos are just images of things that i like, places that ive been to,  and the people i like to hang out with :) 
 
